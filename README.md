@@ -1,0 +1,1 @@
+# 100-200-DMA-Golden-Cross-System-Indian-Equities
